@@ -1,3 +1,3 @@
 # Testing
-Discord Testing
-IDk what im doing
+Discord Testing/
+what the fuck am i doing
